@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @karenxguerra
+- 👀 I’m interested in learning new things
+- 🌱 I’m currently learning Romanian
+- 📫 How to reach me t.me/lautrechienne
